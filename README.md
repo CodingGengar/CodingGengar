@@ -1,0 +1,17 @@
+## Introduction
+Gengar is a dark purple, bipedal Pokémon with a roundish body. It has red eyes, a wide mouth that is usually curled into a sinister grin, and pointed ears. On its back are numerous spikes and it has smaller spikes on top of its head similar to tufty fur. Its arms and legs are short with three digits on both its hands and feet. It also has a stubby tail.
+
+Gengar has the ability to hide perfectly in the shadow of any object, granting it exceptional stealth. However, Gengar's body acts as a heat sink. Its presence cools the temperature of the surrounding area by nearly 10°F (5°C), because it absorbs the warmth. The anime has shown that Gengar can fly and possess people and other Pokémon, and the Pokétoon episode, I turned into a Gengar?!, shows that its large tongue can extend to several meters[1]. In the past, Night Shade was its signature move.
+
+Gengar is very mischievous, and at times, malicious. It enjoys playing practical jokes and casting curses, such as pretending to be one's shadow, then behaving erratically. When the quarry notices, the Gengar takes delight in its victim's terror. However, Gengar has been known to be loyal to a Trainer who treats it well. Being the result of an evolution via trading, Gengar is rarely found in the wild, though they can be found in caves and dark places where shadows form. It is especially fond of urban areas such as cities and back alleys, but only during the night.
+
+As Mega Gengar, a portion of its body sinks into the ground and its arms and tail lengthen. The lower portions turn a more reddish-purple, and a third eye appears on its forehead. This new unblinking eye is oval, yellow, and allows it to see into other dimensions.[2] The spikes on Mega Gengar's back are more numerous and pointed, and additional spikes appear on its hands and tail. Its ears are now considerably longer and tilt backward.
+
+Mega Gengar has the ability to access other dimensions and has a vicious nature. Mega Gengar has no interest in opponents unless perceived as prey. Its relationships are warped due to Mega Evolution. It now desires to take and curse the life of anyone or anything in its path; it may even curse its own Trainer. Mega Gengar sinks into another dimension to wait for a chance to attack.
+
+As Gigantamax Gengar, it becomes larger, with portions of its body sinking into the ground, and only the head, tail, and arms remain. Its body changes from dark-purple to light-purple and its eyes become white with yellow sclera. The inside of its mouth changes to resemble a tunnel with a long purple tongue sticking out. Three red clouds surround the top of Gengar's head.
+
+Gigantamax Gengar's mouth is rumored to not lead into its body. Due to the cursed energy, it is believed to instead lead into the afterlife. By laying a trap, it attempts to steal the lives of those it captures. Should someone stand near its mouth, they can hear the voices of their loved ones calling out to them. Gigantamax Gengar is the only known Pokémon capable of using the exclusive G-Max Move G-Max Terror.
+
+## Origin
+Gengar and Gangar are possibly a shortening of doppelgänger, a double of a person, which is fitting for a Pokémon with a habit of pretending to be a person's shadow. The kanji 幻 maboroshi can also be read as gen and is used in words meaning phantom or illusion. There is also a striking pronunciation similarity to the Danish word genganger, a term for ghosts found in Scandinavian folklore.
